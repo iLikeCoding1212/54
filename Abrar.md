@@ -1,0 +1,1 @@
+I would talk to them about their problems and do things with them that make them happy.
